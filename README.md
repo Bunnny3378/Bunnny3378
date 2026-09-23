@@ -1,16 +1,23 @@
-## Hi there 👋
+# H- hello guys‼️‼️
 
-<!--
-**Bunnny3378/Bunnny3378** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+.. Call me Bunny! Nice to meet you. 🫶🏼
 
-Here are some ideas to get you started:
+# About me‼️🎉
+- 14+ y
+- Thailand
+- 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# proship / Darkship⚠️ :
+- As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences!🎉
+
+# I'm not good at English💔 :
+- I repeat!! Because I'm really not good at English. Please, if you're interested in me or want to sit with me, please feel free. I'll be mute, and when you approach me! I'll be very happy!!🎉
+
+- # My Links‼️
+- Discord :
+- TikTok :
+- Instagram :
+
+
+- - -
+Thank you for reading to the end! I love socializing, it's just that I'm shy and not good at English... 💭😿
