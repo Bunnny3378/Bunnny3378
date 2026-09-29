@@ -15,7 +15,18 @@
     5. etc.
 
  proship / Darkship⚠️ :
-- As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill :3 🎉
+- As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill
+
+BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only... 
+
+- Rickorty = ..okay? Chill ❓️
+- Jrerick = pff .. sorry but get out ..❌️
+- Rickbeth = .. o- oh.. pff no❌️
+- Summer rick/morty = ah.. uh.. no❌️
+- Rickcest = okay ..? I don't know..❓️
+- Mortycest = okay Chill.✅️
+
+That's probably it... Okay, everyone's going to hate me now.
 
  I'm not good at English💔 :
 - I repeat!! Because I'm really not good at English. Please, if you're interested in me or want to sit with me, please feel free. I'll be mute, and when you approach me! I'll be very happy!!🎉
