@@ -14,6 +14,8 @@
     4. Unicorn wars
     5. etc.
 
+- C+H and w2i, if you're too shy to come to me, you can send me a private message and I'll come to you, or you can come to me! If you want💭🥕
+
  proship / Darkship⚠️ :
 - As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill
 
@@ -26,10 +28,10 @@ BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only
 - Rickcest = okay ..? I don't know..❓️
 - Mortycest = okay Chill.✅️
 
-That's probably it... Okay, everyone's going to hate me now.
+That's probably it... Okay, everyone's going to hate me now.💔
 
  I'm not good at English💔 :
-- I repeat!! Because I'm really not good at English. Please, if you're interested in me or want to sit with me, please feel free. I'll be mute, and when you approach me! I'll be very happy!!🎉
+- Okay, let's move on to language. My primary language of communication is Thai. And yes, if you want to talk to me, I'm not very good at English, so my replies might take a very long time. More importantly, my replies will be translations from Thai —> English, which might make them sound strange. I only communicate in English. I apologize that I cannot translate Russian or other languages.‼️
 
 
 - My Links‼️
