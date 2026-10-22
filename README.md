@@ -16,16 +16,16 @@
 
 my fav‼️‼️
 
-Rick Prime no.1 🎉
-Rick c - 137
-toxic Rick
-Zero Rick
+- Rick Prime no.1 🎉
+- Rick c - 137
+- toxic Rick
+- Zero Rick
 
 °•
 
-SupperRickfan Morty 🎉🤍
-Miami Morty
-Morty Prime 
+- SupperRickfan Morty 🎉🤍
+- Miami Morty
+- Morty Prime 
 
 
  proship / Darkship⚠️ :
@@ -34,7 +34,7 @@ Morty Prime
 BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only... 
 
 - Rickorty = ..okay Chill..❓️ ( but u can sit with me! ) ^_^
-- Jrryrick = pff .. sorry but GET out ..❌️‼️
+- jerrick = um.. sorry but GET out ..❌️‼️
 - Rickcest = okay ..? I don't know..❓️( but u can sit with me! ) ^_^
 - Mortycest = Okay‼️ Chill‼️✅️🤍
 
@@ -57,4 +57,4 @@ That's probably it... Okay, everyone's going to hate me now.💔
 Thank you for reading to the end! good day ^_^
 
 
-                                                𖦹 ᐢ..ᐢ 𖦹
+   𖦹 ᐢ..ᐢ 𖦹
