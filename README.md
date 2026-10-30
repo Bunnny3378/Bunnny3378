@@ -6,40 +6,29 @@
 - 14+ y
 - Thailand
 
-   Fandom
-  - 1. Rick and Morty
-    2. Hotline miami
+   - SUPPERRICKFAN MORTY HIS MY SON🎉
 
+  - I luvs all the RICK🤍🎉🎉
 
 - C+H and w2i, if you're too shy to come to me, you can send me a private message and I'll come to you, or you can come to me! If you want💭🥕
 
-
-my fav‼️‼️
-
-- Rick Prime no.1 🎉
-- Rick c - 137
-- toxic Rick
-- Zero Rick
-
-°•
-
-- SupperRickfan Morty 🎉🤍
-- Miami Morty
-- Morty Prime 
-
+- - -
 
  proship / Darkship⚠️ :
 - As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill
+
+- ⚠️ I do not support them using this in real life!!!! 😭‼️‼️‼️‼️❌️❌️❌️❌️
 
 BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only... 
 
 - Rickorty = ..okay Chill..❓️ ( but u can sit with me! ) ^_^
 - jerrick = um.. sorry but GET out ..❌️‼️
-- Rickcest = okay ..? I don't know..❓️( but u can sit with me! ) ^_^
-- Mortycest = Okay‼️ Chill‼️✅️🤍
+- Rickcest = okay ..? I don't know..❓️( but u can sit with me too! ) ^_^
+- Mortycest = Okay Chill‼️✅️
 
 That's probably it... Okay, everyone's going to hate me now.💔
 
+- - -
 
 
  I'm not good at English💔 :
