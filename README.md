@@ -35,11 +35,10 @@ That's probably it... Okay, everyone's going to hate me now.💔
 - Okay, let's move on to language. My primary language of communication is Thai. And yes, if you want to talk to me, I'm not very good at English, so my replies might take a very long time. More importantly, my replies will be translations from Thai —> English, which might make them sound strange. I only communicate in English. I apologize that I cannot translate Russian or other languages.‼️
 
 
-- My Links‼️
+- My Links‼️ 
 
 - Discord : bunny._bunbun
-- [TikTok](https://www.tiktok.com/@faraway._14?_r=1&_t=ZS-99ymTquWLlV)
-- Roblox : Myhahhy_17
+ - Roblox : Myhahhy_17
 
 
 - - -
