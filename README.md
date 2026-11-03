@@ -17,6 +17,8 @@
  proship / Darkship⚠️ :
 - As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill
 
+- i am a profic , proship‼️
+
 - ⚠️ I do not support them using this in real life!!!! 😭‼️‼️‼️‼️❌️❌️❌️❌️
 
 BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only... 
