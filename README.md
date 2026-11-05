@@ -2,33 +2,36 @@
 
 .. Call me Bunny | bunbun Ი𐑼 ! Nice to meet you. 🫶🏼
 
- About me‼️🎉
 - 14+ y
 - Thailand
+- my profile is my Art 🎉
 
    - SUPPERRICKFAN MORTY HIS MY SON🎉
 
   - I luvs all the RICK🤍🎉🎉
 
-- C+H and w2i, if you're too shy to come to me, you can send me a private message and I'll come to you, or you can come to me! If you want💭🥕
+- C+H and w2i
+ but C+H PLS PLS PLS😭😭😭
+if u want me just come to me and C+H 🎉
 
 - - -
 
  proship / Darkship⚠️ :
 - As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill
 
-- i am a profic , proship‼️
-
-- ⚠️ I do not support them using this in real life!!!! 😭‼️‼️‼️‼️❌️❌️❌️❌️
+- bc i am a profic , proship🎉
 
 BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only... 
 
-- Rickorty = ..okay Chill..❓️ ( but u can sit with me! ) ^_^
+- Rickorty = ..okay Chill..‼️✅️
 - jerrick = um.. sorry but GET out ..❌️‼️
-- Rickcest = okay ..? I don't know..❓️( but u can sit with me too! ) ^_^
+
+- Rickcest = okay ..? I think i don't like..the ship...💔( but u can sit with me! ) ✅️
 - Mortycest = Okay Chill‼️✅️
 
 That's probably it... Okay, everyone's going to hate me now.💔
+
+⚠️WAIT WAIT WAIT I do not support them using this in real life!!!! 😭‼️‼️‼️‼️❌️❌️❌️❌️⚠️
 
 - - -
 
