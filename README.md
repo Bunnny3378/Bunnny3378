@@ -19,11 +19,11 @@ if u want me just come to me and C+H 🎉
  proship / Darkship⚠️ :
 - As I said, it's okay! I don't mind. Why? Because it's a matter of personal preference! And I don't belittle other people's preferences! I'm chill
 
-- bc i am a profic , proship🎉
+- bc i am a profic
 
 BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only... 
 
-- Rickorty = ..okay Chill..‼️✅️
+- Rickorty = ..okay Chill..‼️
 - jerrick = um.. sorry but GET out ..❌️‼️
 
 - Rickcest = okay ..? I think i don't like..the ship...💔( but u can sit with me! ) ✅️
