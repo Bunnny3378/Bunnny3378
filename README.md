@@ -1,8 +1,7 @@
- H- hello guys‼️‼️
+ hello guys‼️‼️
 
 .. Call me Bunny | bunbun Ი𐑼 ! Nice to meet you. 🫶🏼
 
-- 14+ y
 - Thailand
 - my profile is my Art 🎉
 
@@ -10,6 +9,7 @@
 
   - I luvs all the RICK🤍🎉🎉
 
+( pony town )
 - C+H and w2i
  but C+H PLS PLS PLS😭😭😭
 if u want me just come to me and C+H 🎉
@@ -26,8 +26,8 @@ BUT‼️‼️ Don't get too excited... I'm okay with... uh... these ships only
 - Rickorty = ..okay Chill..‼️
 - jerrick = um.. sorry but GET out ..❌️‼️
 
-- Rickcest = okay ..? I think i don't like..the ship...💔( but u can sit with me! ) ✅️
-- Mortycest = Okay Chill‼️✅️
+- Rickcest = okay ..? I think i don't like..the ship...💔( but u can sit with me! )
+- Mortycest = Okay Chill‼️
 
 That's probably it... Okay, everyone's going to hate me now.💔
 
